@@ -1,1 +1,1 @@
-# App-de-finan-as-
+# App-de-finan-as-https://pocket-wisdom-studio.lovable.app
